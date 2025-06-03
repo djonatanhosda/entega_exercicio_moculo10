@@ -1,1 +1,0 @@
-# entega_exercicio_moculo10
